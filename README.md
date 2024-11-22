@@ -41,6 +41,7 @@ used.
 ![WhatsApp Image 2024-11-22 at 12 02 45_a8d4b260](https://github.com/user-attachments/assets/2b3831b6-e207-45ea-9518-4bccbf232675)
 
 #### Power Report:
+![WhatsApp Image 2024-11-22 at 12 02 46_0c33946d](https://github.com/user-attachments/assets/18c5bb72-be4d-412d-b89d-091ae68092b4)
 
 #### Result: 
 
